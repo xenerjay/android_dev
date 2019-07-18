@@ -1,2 +1,2 @@
 Brand new to Android development trying to get a grasp of all functionality trying to have fun LOL# android_dev
-Android development code
+Android development code still trying to understand this website help me I'm lost I'm confused I'm ready to get to codeine I need some help finding different coding that for animation on buttons on different methods in retrieving data I need help very bad I don't know what I'm doing please help
